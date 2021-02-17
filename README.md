@@ -1,2 +1,0 @@
-# vastiogin.github.io
-hfghyt
